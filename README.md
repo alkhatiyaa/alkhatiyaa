@@ -21,5 +21,3 @@ socionics gaben SLI ࿐ྂㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ⇢ ˗ˏˋ you can se
 usually it's CH or undertale. and someday on dsmp and eddsworld ࿐ྂㅤㅤㅤㅤㅤㅤㅤㅤㅤ⇢ ˗ˏˋ Most of the time AFK. So, better whispers to interact.【also ask before kissing\sitting next to me】 ࿐ྂㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 *˚＊·̩̩̥͙*•̩̩͙✩•*˚＊·̩̩̥͙ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤMy playlist: ᴍsɪ,sʟɪᴘᴋɴᴏᴛ,ᴇᴠᴀɴᴇsᴄᴇɴᴄᴇ,ᴍᴏᴛʜᴇʀ ᴍᴏᴛʜᴇʀ,sᴋɪʟʟᴇᴛ,ᴋᴩоʙоᴄᴛоᴋ,ʟᴀᴢᴢʏ2ᴡɪᴄᴇ,ᴛʜᴇ ᴡᴇᴇᴋɴᴅ, ᴍᴀʀɪɴᴀ. I'll keep adding to the list. ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  <img src="https://i.pinimg.com/originals/e2/7b/8b/e27b8baabae46ebf10d2aa67f87ae9fc.gif" width="1200">
- ![](https://komarev.com/ghpvc/?username=alkhatiyaa&color=ff69b4&style=for-the-badge&label=✩)
- ![](https://hit.yhype.me/github/profile?account_id=171444743)
